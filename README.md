@@ -32,9 +32,9 @@ My study shed light on a few insights. They are:
 
 To help dive even deeper into my love for classic literature and UK authors, here are a few tailored tips:
 
-- Try setting a routine to listen to audiobooks during your daily activities, like commuting or exercising
+- Try setting a routine to listen to audiobooks during my daily activities, like commuting or exercising
 - Mix in both classic and contemporary UK literature to keep things fresh and exciting
-- Join a book club focused on other genres. this is because discussing with others can add new layers to my reading experience
+- Join a book club focused on other genres. This is because discussing with others can add new layers to my reading experience
 
 
 ## Limitations
